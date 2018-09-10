@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Carlos the meme](https://toshitimes.com/wp-content/uploads/2018/08/The-Head-of-the-Well-known-Scam-BitConnect-Finally-Arrested.jpg)
